@@ -1,8 +1,8 @@
-<h1 dir="ltr" style="text-align: justify;"><strong><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:20pt">Thiên Đồng Thiên Lương cung Phu Thê: Giải mã hôn nhân phúc đức và nhân duyên hòa hợp cùng Tracuulasotuvi</span></strong></h1>
+<p><strong><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:20pt">Thiên Đồng Thiên Lương cung Phu Thê: Giải mã hôn nhân phúc đức và nhân duyên hòa hợp cùng Tracuulasotuvi</span></strong></p>
 
 <p dir="ltr" style="text-align:justify"><strong>Thiên Đồng Thiên Lương cung Phu Thê</strong><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:11pt"> là cách cục biểu trưng cho hôn nhân an ổn, tình cảm bền chặt và phúc đức lâu dài. Hai sao này đều là phúc tinh trong Tử Vi Đẩu Số &ndash; Thiên Đồng chủ nhân hậu, vui vẻ, dễ cảm thông; Thiên Lương chủ đạo đức, chính trực và lòng bao dung. Khi đồng cung hoặc hội chiếu mạnh tại cung Phu Thê &ndash; cung chủ về hôn nhân và nhân duyên &ndash; bản mệnh thường gặp người bạn đời hiền lành, có đạo nghĩa và sống trách nhiệm với gia đình.</span></p>
 
-<p dir="ltr" style="text-align: justify;"><strong><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:16pt">Thiên Đồng Thiên Lương cung Phu Thê là gì?</span></strong></p>
+<p dir="ltr" style="text-align:justify"><strong><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:16pt">Thiên Đồng Thiên Lương cung Phu Thê là gì?</span></strong></p>
 
 <div>
 <div id="input_line_0" style="padding-top: 0px;"><strong><a href="http://Sao Thiên Đồng là một chính tinh tốt trong tử vi, chủ về sự kéo dài tuổi thọ, tăng phước đức và tài lộc dồi dào. Ngôi sao này cũng chủ về sự hưởng thụ, ham muốn trong cuộc sống.">Sao Thiên Đồng</a></strong> là một chính tinh tốt trong tử vi, chủ về sự kéo dài tuổi thọ, tăng phước đức và tài lộc dồi dào. Ngôi sao này cũng chủ về sự hưởng thụ, ham muốn trong cuộc sống.</div>
@@ -12,9 +12,9 @@
 
 <p dir="ltr" style="text-align:justify"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:11pt">Nếu miếu vượng, gặp các sao cát như Thiên Phúc, Long Đức, Hóa Khoa, Hóa Lộc, thì vợ chồng đồng lòng, danh lộc cùng vượng. Nếu hãm địa hoặc bị sát tinh xung phá (Kình Dương, Linh Tinh, Địa Kiếp), có thể xảy ra hiểu lầm nhỏ, nhưng Thiên Lương hóa giải nhờ đức độ và thiện tâm.</span></p>
 
-<p dir="ltr" style="text-align: center;"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:11pt"><img alt="" src="https://tracuulasotuvi.com/wp-content/uploads/2024/07/sao-thien-dong.jpg" /></span></p>
+<p dir="ltr" style="text-align:center"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:11pt"><img alt="" src="https://tracuulasotuvi.com/wp-content/uploads/2024/07/sao-thien-dong.jpg" /></span></p>
 
-<p dir="ltr" style="text-align: justify;"><strong><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:16pt">Tính cách người phối ngẫu trong cách cục Thiên Đồng Thiên Lương cung Phu Thê</span></strong></p>
+<p dir="ltr" style="text-align:justify"><strong><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:16pt">Tính cách người phối ngẫu trong cách cục Thiên Đồng Thiên Lương cung Phu Thê</span></strong></p>
 
 <p dir="ltr" style="text-align:justify"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:11pt">Người có Thiên Đồng Thiên Lương cung Phu Thê thường nên duyên với người hiền hậu, trọng nghĩa, có lòng thương người và sống nguyên tắc.</span></p>
 
@@ -108,8 +108,8 @@
 
 <p dir="ltr" style="text-align:justify"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:11pt">Nếu biết sống thiện, duy trì sự bao dung và chia sẻ, Phu Thê Thiên Đồng Thiên Lương sẽ trở thành biểu tượng của hôn nhân viên mãn, đạo nghĩa và trường tồn.</span></p>
 
-<p><strong>Ngoài ra, để mở rộng góc nhìn về phương diện nhà cửa và không gian sống trong tử vi, bạn có thể tham khảo thêm các phân tích về <a href="https://www.band.us/@tracuulasotuvi">Điền Trạch Thiên Đồng</a>.</strong></p>
+<p><strong>Ngoài ra, để mở rộng góc nhìn về phương diện nhà cửa và không gian sống trong tử vi, bạn có thể tham khảo thêm các phân tích về Điền Trạch Thiên Đồng.</strong></p>
 
-<p dir="ltr" style="text-align:justify"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:11pt">Để tìm hiểu sâu hơn về Cung Phu Thê Thiên Đồng Thiên Lương khi phối hợp với các sao Hóa Khoa, Thiên Phúc, Long Đức, mời bạn tra cứu tại Tracuulasotuvi.com.</span></p>
+<p dir="ltr" style="text-align:justify"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:11pt">Để tìm hiểu sâu hơn về Cung Phu Thê Thiên Đồng Thiên Lương khi phối hợp với các sao Hóa Khoa, Thiên Phúc, Long Đức, mời bạn tra cứu tại </span><strong><a href="https://www.band.us/@tracuulasotuvi"><span style="color:rgb(0, 0, 0); font-family:arial; font-size:10pt">Tra Cứu Lá Số Tử Vi</span></a></strong></p>
 
 <p>&nbsp;</p>
