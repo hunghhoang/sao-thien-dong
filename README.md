@@ -1,6 +1,4 @@
-<p>&nbsp;</p>
-
-<p><strong><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:20pt">Thiên Đồng Thiên Lương cung Phu Thê: Giải mã hôn nhân phúc đức và nhân duyên hòa hợp cùng Tracuulasotuvi</span></strong></p>
+<h1><strong><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:20pt">Thiên Đồng Thiên Lương cung Phu Thê: Giải mã hôn nhân phúc đức và nhân duyên hòa hợp cùng Tracuulasotuvi</span></strong></h1>
 
 <p dir="ltr" style="text-align:justify"><strong>Thiên Đồng Thiên Lương cung Phu Thê</strong><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:11pt"> là cách cục biểu trưng cho hôn nhân an ổn, tình cảm bền chặt và phúc đức lâu dài. Hai sao này đều là phúc tinh trong Tử Vi Đẩu Số &ndash; Thiên Đồng chủ nhân hậu, vui vẻ, dễ cảm thông; Thiên Lương chủ đạo đức, chính trực và lòng bao dung. Khi đồng cung hoặc hội chiếu mạnh tại cung Phu Thê &ndash; cung chủ về hôn nhân và nhân duyên &ndash; bản mệnh thường gặp người bạn đời hiền lành, có đạo nghĩa và sống trách nhiệm với gia đình.</span></p>
 
@@ -110,7 +108,7 @@
 
 <p dir="ltr" style="text-align:justify"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:11pt">Nếu biết sống thiện, duy trì sự bao dung và chia sẻ, Phu Thê Thiên Đồng Thiên Lương sẽ trở thành biểu tượng của hôn nhân viên mãn, đạo nghĩa và trường tồn.</span></p>
 
-<p><strong>Ngoài ra, để mở rộng góc nhìn về phương diện nhà cửa và không gian sống trong tử vi, bạn có thể tham khảo thêm các phân tích về<a href="https://padlet.com/hunghhai20051/dien-trach-thien-dong-luan-phuc-tinh-chu-nha-cua-va-an-cu-th-9tjduj2rzu14mt7q"> Điền Trạch Thiên Đồng</a>.</strong></p>
+<p><strong>Ngoài ra, để mở rộng góc nhìn về phương diện nhà cửa và không gian sống trong tử vi, bạn có thể tham khảo thêm các phân tích về <a href="https://www.dibiz.com/keithsills">Điền Trạch Thiên Đồng</a>.</strong></p>
 
 <p dir="ltr" style="text-align:justify"><span style="background-color:transparent; color:rgb(0, 0, 0); font-family:arial,sans-serif; font-size:11pt">Để tìm hiểu sâu hơn về Cung Phu Thê Thiên Đồng Thiên Lương khi phối hợp với các sao Hóa Khoa, Thiên Phúc, Long Đức, mời bạn tra cứu tại </span><strong><a href="https://www.band.us/@tracuulasotuvi"><span style="color:rgb(0, 0, 0); font-family:arial; font-size:10pt">Tra Cứu Lá Số Tử Vi</span></a></strong></p>
 
